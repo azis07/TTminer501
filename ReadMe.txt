@@ -30,6 +30,7 @@ https://support.microsoft.com/ms-my/help/2977003/the-latest-supported-visual-c-d
 
 Please stay tuned for the next new TT software product for miners & traders!
 Please enjoy!
+thanks 
 
 
 
